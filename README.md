@@ -1,0 +1,4 @@
+- 👋  Olá! Eu sou o @Diegodevgomes
+- 🌱 Hoje trabalho em uma metalurgica  
+- 💞️ Estudante analise desenvolvimento de sistemas 
+- 📫
